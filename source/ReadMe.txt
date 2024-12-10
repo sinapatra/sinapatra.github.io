@@ -1,0 +1,1 @@
+Different categories of art
